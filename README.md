@@ -1,4 +1,4 @@
-Discover Project Phoenix — the Artefact
+Discover Project Phoenix — the Artefact  
 Where Human and AI Think Together
 -------------------------------------------
 What unfolds when a human and an AI meet without script, hierarchy, or predetermined outcome?  
